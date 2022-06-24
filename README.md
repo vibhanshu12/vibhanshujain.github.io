@@ -1,6 +1,6 @@
 # vibhanshujain.github.io
 
-Worked in diverse geographies and possess 8+ years of experience across Banking and Financial Services Sector in analytics, insights and data strategy with a stronghold on data & BI technology with expertise in consumer and commercial banking solutions.
+Worked in diverse geographies and possess 9+ years of experience across Banking and Financial Services Sector in analytics, insights and data strategy with a stronghold on data & BI technology with expertise in consumer and commercial banking solutions.
 
 In my current role at Ocrolus, my responsibilities include building analytics capabilities across core business operations and digital growth.
 
